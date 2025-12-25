@@ -1,0 +1,1 @@
+I will run the updated generation script that creates more human-like, attractive images with slightly NSFW teasing content while maintaining consistency. The script uses Pollinations.ai with improved prompts that sound like an influencer's social media posts rather than generic AI prompts.
